@@ -2,9 +2,9 @@
 Ddos a spam sluts site
 So i received this email
 
-![Kraken hitting Hackerone ](https://raw.githubusercontent.com/DeadmanXXXII/Kraken/main/Screenshot_20240816-000232.png)
+![Slut slamming](https://raw.githubusercontent.com/DeadmanXXXII/Bitch/main/Screenshot_20240816-192043.png)
 
-![Kraken hitting Hackerone ](https://raw.githubusercontent.com/DeadmanXXXII/Kraken/main/Screenshot_20240816-000232.png)
+![Slut slamming](https://raw.githubusercontent.com/DeadmanXXXII/Bitch/main/Screenshot_20240816-192020.png)
 
 I extract the link:
 http://online-horny.site/?s=Pretty_135s
