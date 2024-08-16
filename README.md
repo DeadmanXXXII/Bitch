@@ -15,7 +15,7 @@ curl -I -L http://online-horny.site/?s=Pretty_135s
 ```
 
 That give me this response:
-![Kraken hitting Hackerone ](https://raw.githubusercontent.com/DeadmanXXXII/Kraken/main/Screenshot_20240816-000232.png)
+![Kraken hitting Hackerone ](https://raw.githubusercontent.com/DeadmanXXXII/Bitch/main/Screenshot_20240816-193426.png)
 
 
 I then extract from the data the dinal destination and noticed the double mutable parameters at the end of the link.
@@ -25,8 +25,8 @@ or similar.
 
 I then built the script to randomise the characters after the / on bith points and booom
 
-![Kraken hitting Hackerone ](https://raw.githubusercontent.com/DeadmanXXXII/Kraken/main/Screenshot_20240816-000232.png)
+![Slut slamming](https://raw.githubusercontent.com/DeadmanXXXII/Bitch/main/Screenshot_20240816-164557.png)
 
-![Kraken hitting Hackerone ](https://raw.githubusercontent.com/DeadmanXXXII/Kraken/main/Screenshot_20240816-000232.png)
+![Kraken hitting Hackerone ](https://raw.githubusercontent.com/DeadmanXXXII/Bitch/main/Screenshot_20240816-163943.png)
 
 
