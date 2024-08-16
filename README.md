@@ -1,6 +1,7 @@
 # Bitch
-Ddos a spam sluts site
-So i received this email
+Ddos a spam sluts site.
+
+So I received this email:
 
 ![Slut slamming](https://raw.githubusercontent.com/DeadmanXXXII/Bitch/main/Screenshot_20240816-192043.png)
 
