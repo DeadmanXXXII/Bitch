@@ -27,6 +27,10 @@ I then built the script to randomise the characters after the / on bith points a
 
 ![Slut slamming](https://raw.githubusercontent.com/DeadmanXXXII/Bitch/main/Screenshot_20240816-164557.png)
 
-![Kraken hitting Hackerone ](https://raw.githubusercontent.com/DeadmanXXXII/Bitch/main/Screenshot_20240816-163943.png)
+```bash
+python3 bitch.py
+'''
+
+![Slut slamming](https://raw.githubusercontent.com/DeadmanXXXII/Bitch/main/Screenshot_20240816-163943.png)
 
 
